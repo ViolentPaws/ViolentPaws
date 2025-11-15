@@ -1,14 +1,21 @@
-![](https://files.catbox.moe/9bsjji.png)
+![](https://files.catbox.moe/981d8k.png)
+    rui / sprout / seedly ◞𓈒   ݂ ♡ 1*8* 𓏲 ˚¦ ͜͝ | ͜͝ . 
+     ˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  star **stinky**  ⁠ֺ 🥀 ^_^
 
-　　　　　__*ru*i__ namgyu　 ᜊ( ˊᵕˋ )ᜊ
-⠀　　[ata](https://namrui.atabook.org/)　𓏭 ⟡ 　　🔪 　　. /[**straw**__page__](https://namruii.straw.page)
+## ♡𓂂  SECTION 01
+ **𓏴𓏴**  im a sprout fictkin-yume-monoshipper! 
+  **𓏴𓏴**  other yumes/fictkin please dni for my own personal comfort! dttm about any sprout *romantic* ships other than 🐚🍓 and 🍓x🍓 ( me :3 x sprout )
 
+  **MIRRORSHIPPING IS BANNED IN DISCORD IM CRYING**
 
+  ## ♡𓂂  SECTION 02
+   **𓏴𓏴**  links, wip as i wish to remake them to be fully sprout themed
 
-
-⠀⠀⠀⠀⠀@**s***ys*⠀⠀⠀⠀ 🐈‍⬛ ⠀⠀｡⠀⠀c+h even on dni 
-⠀⠀⠀⠀ ⠀freq**front**ers⠀⠀⏖⠀⠀r*u***i**, **namgyu**, _jae_**won**
-
-  (＞。☆)  [cardco *wip*](https://link) 🪦
-    ˒˒  ♫  ੭୧  ₊ ⊹
-     𓂃  **as**k 4 nicknames 🍴
+   ## ♡𓂂  SECTION 03
+    **𓏴𓏴**  i strictly use xe/xem or berry/berryself if I don't consider you close
+     **𓏴𓏴**  im mlm, ftm, do not use fem terms on me.
+      **𓏴𓏴**  iam diagnosed sys, dyslexia, and schizophrenic. and don't ping me in discord nor cover my skin unless oomf
+      
+      Random images cus i can
+      
+![](https://files.catbox.moe/x1rqa9.png)
